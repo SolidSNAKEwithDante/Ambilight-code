@@ -1,3 +1,14 @@
+
+
+Bonjour, j'etait entrain de suive ta video tuto ambilight mais tu la supprime est ce que nous pouvons se parler en MP ou le remettre s'il vous plait ?
+
+
+
+
+
+
+
+
 # Ambilight-code
 
 # Les prérequis  :
